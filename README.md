@@ -12,6 +12,8 @@ I'm Jisenku, currently 17 and doing many... many different things.
  
 - For more information about me, check out my website at: [jisenku.com](https://jisenku.com), unless the [link fails](https://jisenku.carrd.co)
 
+- Also, yes I've been on Github since 2018, no I still can't code, and no my readme isn't my first repo lol ~~I just don't want people seeing my first repos because I cringe looking at them.~~
+
 <!--
 If you're curious, no there's nothing in the code of this, sad I know, I don't normally leave easter eggs in my stuff unfortunetly.
 -->
