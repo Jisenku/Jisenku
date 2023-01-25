@@ -9,7 +9,7 @@ I'm Jisenku, currently 17 and doing many... many different things.
   - Discord: Jisenku#9277 (Easiest to contact)
   - Email: jisenku@gmail.com (Will redirect to my personal email)
  
-- For more information about me, check out my website at: https://jisenku.carrd.co
+- For more information about me, too bad :)
 <!--
 nom nom nom
 -->
