@@ -8,6 +8,9 @@ I'm Jisenku, currently 17 and doing many... many different things.
 - The best ways to reach me are:
   - Discord: Jisenku#9277 (Easiest to contact)
   - Email: jisenku@gmail.com (Will redirect to my personal email)
+
+
+Discord Server: https://dsc.gg/rip-tide
  
 - For more information about me, too bad :)
 <!--
