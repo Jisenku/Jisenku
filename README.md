@@ -1,6 +1,6 @@
 ### Welcome to my page! 
 
-I'm Jisenku, currently 18 and am currently doing your mom!
+I'm Jisenku, 18, probably doing your mom
 
 - The best ways to reach me are:
   - Discord: Jisenku
